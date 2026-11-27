@@ -16,7 +16,7 @@ VPS World：[https://vpsworld.org/](https://vpsworld.org/)
 
 ---
 
-[TNT Cloud机场](https://shadowotone.tntvipaff.cc/#/register?code=bnj4SRkC)，是一家 2024 年 7 月成立的新兴机场 ，该机场**主打 Trojan 协议**，服务稳定，是老牌机场的分站团队，也是海外团队，有专业的客服团队。全天在线维护客户。有特色的季付限量包，低至10元每月，专门为用量小的用户设计。
+[TNT Cloud机场](https://w05.tntyunb01.cc/#/register?code=bnj4SRkC)，是一家 2024 年 7 月成立的新兴机场 ，该机场**主打 Trojan 协议**，服务稳定，是老牌机场的分站团队，也是海外团队，有专业的客服团队。全天在线维护客户。有特色的季付限量包，低至10元每月，专门为用量小的用户设计。
 
 - 2000 Mbps 速率，**晚高峰不限制速度**，不限制 IP
 - **IPLC 内网专线机场，原生 IP 节点**
@@ -29,7 +29,7 @@ VPS World：[https://vpsworld.org/](https://vpsworld.org/)
 
 ## 🌐 官方网站
 
-[https://www.tntyun.cc/](https://shadowotone.tntvipaff.cc/#/register?code=bnj4SRkC)
+[https://www.tntyun.cc/](https://w05.tntyunb01.cc/#/register?code=bnj4SRkC)
 
 ## 🧾 订阅列表
 
@@ -54,4 +54,4 @@ VPS World：[https://vpsworld.org/](https://vpsworld.org/)
 
 TNT Cloud机场的特色是 Trojan 协议、IPLC 内网专线和面向小流量用户的低门槛套餐。它适合用量不大但又希望获得相对稳定线路体验的用户，也适合作为备用机场。
 
-👉 官方网站：[https://www.tntyun.cc/](https://shadowotone.tntvipaff.cc/#/register?code=bnj4SRkC)
+👉 官方网站：[https://www.tntyun.cc/](https://w05.tntyunb01.cc/#/register?code=bnj4SRkC)
